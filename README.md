@@ -2,7 +2,7 @@
 - 👀 I’m interested in  computer science
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking to collaborate computer scientist
-- 📫  reach me on my email ishkaban@gmail.com
+- 📫  reach me on my email ishkabangs@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
